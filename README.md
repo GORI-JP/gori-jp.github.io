@@ -1,1 +1,0 @@
-# gori-jp.github.io
